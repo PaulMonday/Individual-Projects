@@ -1,1 +1,1 @@
-Hi! There are some individual projects and practices.The formal work, like Research Asistant(RA) job, are not shown here.  
+Hi! This is my portfolio.The formal work, like Research Asistant(RA) job, are not shown here.  
